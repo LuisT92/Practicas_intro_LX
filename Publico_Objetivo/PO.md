@@ -1,0 +1,2 @@
+# Público objetivo.
+Persona de entre 20 y 50 años que vive en la ciudad de México, con nivel de estudio básico, ingresos mínimos de 8 mil pesos mensuales, su principal fuente de información es internet y dedica la mayoría de su tiempo libre a interactuar en redes sociales
